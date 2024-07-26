@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @raymondwang037
 - 🌱 I’m currently learning computer science at purdue university
-- 📫 How to reach me: raymondwang037@gmail.com or fridge#7819 on discord
+- 📫 How to reach me: raymondwang037@gmail.com
